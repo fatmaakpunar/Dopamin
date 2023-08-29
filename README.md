@@ -1,4 +1,4 @@
-SOSYAL MEDYANIN DOPAMİN ETKİSİ ÜZERİNE KÜÇÜK BİR İSTATİSTİKSEL ARAŞTIRMA
+SOSYAL MEDYANIN DOPAMİN ETKİSİ ÜZERİNE KÜÇÜK BİR İSTATİSTİKSEL ARAŞTIRMA: 
 Sosyal medyanın dopamin salgısı üzzerine etkisini araştırmak için yaklaşık 30 kişiyle yaptığım 10 soruluk ankette sosyal medyanın duygu değişimlerimiz üstünde etkisine bakarak dopamin salgısını arttırıp arttırmadığını ölçmeye çalıştım.
 
 Hipotezim şu şekilde:
