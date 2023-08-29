@@ -24,3 +24,5 @@ Aynı araştırma verileri için ankete katılanların %29,6' sının sosyal med
 
 
 Aynı zamanda “Sosyal medyada geçirdiğiniz zamanın size sağladığı ödülü nasıl değerlendirirsiniz?” sorusuna ankete katılanların %59,3' ü “Eğlence ve keyifli vakit geçirme imkanı sunduğu için değerli buluyorum.” cevabını vermiştir. Yani insanların sosyal medyada geçirdikleri zamanı apaçık bir ödül olarak gördüğü ortadadır.
+
+MEDİUM BLOG YAZISI : https://medium.com/@fatmaakpunar42/sosyal-medyan%C4%B1n-dopamin-tuza%C4%9F%C4%B1-a%C5%9F%C4%B1r%C4%B1-salg%C4%B1latan-etkisiyle-beynimizi-esir-alan-ger%C3%A7ek-3cf4d97f7729
